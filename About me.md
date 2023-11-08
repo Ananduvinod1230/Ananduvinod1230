@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ananduvinod1230
 - 👀 I’m interested in Coding, Solving Problems, Teaching
-- 🌱 I’m currently learning Electronics and Communication Engineering at NSS College of Engineering Palakkad
+- 🌱 I’m currently pursuing Electronics and Communication Engineering at NSS College of Engineering Palakkad
 - 💞️ I’m looking to collaborate with IT Developing Company
 - 📫 Reach me by whatsapp and linkedIn. My Phone number:9048119149
 -    linkedIn ID:https://www.linkedin.com/in/anandu-vinod
